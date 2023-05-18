@@ -10,6 +10,7 @@ Wiki, how, why, who?:
 - Programmer of Turing Machines job.
 - Writer Beta Jr job.
 - Internet IA connection³ bad elecron energy cleaner/dodge job. 
+- An art ist job without lines job.
 
 † Em nome de Jesus, expulso todas as influencias sobre este material. † 
 
