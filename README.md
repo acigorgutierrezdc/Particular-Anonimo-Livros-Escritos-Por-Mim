@@ -1,11 +1,22 @@
 # Particular-Anonimo
-10º Passo de NA
+
+Wiki:
+
+- 10º Passo de NA
+- Mind Food.
+- King services.
+- LSX Lines interaction.
+- Researcher job.
+- Programmer of Turing Machines job.
+- Writer Beta Jr job.
 
 † Em nome de Jesus, expulso todas as influencias sobre este material. † 
 
 
 ***FBI WARNING***
+
 © 1988 - 2023 Igor Felipe Pereira Gutierrez - 358.228.538-38. All Rights Reserved.
+
 ac.igor.gutierrez@gmail.com
 
 --------------------------------------------------------------------------------------
