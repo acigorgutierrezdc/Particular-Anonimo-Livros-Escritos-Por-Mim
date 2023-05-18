@@ -1,6 +1,6 @@
 # Particular - Anonimo - From the close possible of HOLY SOUL SPIRIT.
 
-Wiki:
+Wiki, how, why, who?:
 
 - 10º Passo de NA
 - Mind Food.
@@ -9,6 +9,7 @@ Wiki:
 - Researcher job.
 - Programmer of Turing Machines job.
 - Writer Beta Jr job.
+- Internet IA connection³ bad elecron energy cleaner/dodge job. 
 
 † Em nome de Jesus, expulso todas as influencias sobre este material. † 
 
