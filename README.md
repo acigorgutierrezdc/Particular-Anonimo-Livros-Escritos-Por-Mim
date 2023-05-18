@@ -1,4 +1,13 @@
-# Particular - Anonimo - From the close possible of HOLY SOUL SPIRIT.
+
+# Particular - Anonimo - From the close possible of HOLY SOUL SPIRIT.######################################
+† Em nome de Jesus, como nos pediu, expulso todas as influencias sobre este material. E evoco o SENHOR JESUS A NOSSA PRESENÇA< COM MAXIMO RESPEITO E REVERENCIA.† 
+
+###Pelo Santo Rosario cristão em guiança deste trabalho###
+
+Santo Rosário Completo com Padre Roberto Benvindo -30/09 - Instituto HeSed | Exército de São Miguel
+https://www.youtube.com/watch?v=LF0_uuuoO24
+
+###########################################################################################################
 
 Wiki, how, why, who?:
 
@@ -13,15 +22,7 @@ Wiki, how, why, who?:
 - An art ist job without lines job.
 
 
-##############################################################################################################
-† Em nome de Jesus, como nos pediu, expulso todas as influencias sobre este material. E evoco o SENHOR JESUS A NOSSA PRESENÇA< COM MAXIMO RESPEITO E REVERENCIA.† 
 
-###Pelo Santo Rosario cristão em guiança deste trabalho###
-
-Santo Rosário Completo com Padre Roberto Benvindo -30/09 - Instituto HeSed | Exército de São Miguel
-https://www.youtube.com/watch?v=LF0_uuuoO24
-
-##############################################################################################################
 
 
 ***FBI WARNING***
