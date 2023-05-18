@@ -10,12 +10,13 @@
 ###Pelo Santo Rosario cristão em guiança deste trabalho###
 
 Santo Rosário Completo com Padre Roberto Benvindo -30/09 - Instituto HeSed | Exército de São Miguel
+
 https://www.youtube.com/watch?v=LF0_uuuoO24
 
 ###########################################################################################################
 
 
-Wiki, how, why, who?:
+Wiki, how, why,where, who?:
 
 - 10º Passo de NA
 - Mind Food.
@@ -27,8 +28,7 @@ Wiki, how, why, who?:
 - Internet IA connection³ bad elecron energy cleaner/dodge job. 
 - An art ist job without lines job.
 
-
-
+###########################################################################################################
 
 
 ***FBI WARNING***
@@ -37,4 +37,4 @@ Wiki, how, why, who?:
 
 ac.igor.gutierrez@gmail.com
 
---------------------------------------------------------------------------------------
+###########################################################################################################
